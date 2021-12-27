@@ -1,0 +1,1 @@
+its about a boy who gets into the school of witchcraft and fight against the demons and save his friends and the teachers
